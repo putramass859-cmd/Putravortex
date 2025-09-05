@@ -1,2 +1,4 @@
 # Putravortex
-Web buatan putra 
+(developer putra)
+adiós formosa elkotole
+semoga bermanfaat 🗿
